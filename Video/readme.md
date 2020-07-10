@@ -10,4 +10,4 @@ EOSBet转账请求伪造攻击：https://v.qq.com/x/page/z0822466l7x.html
 
 EOSBet转账请求伪造攻击2:https://v.qq.com/x/page/c0822ffrumi.html
 
-*新视频陆续添加中*
+*新视频陆续添加中。。。*
